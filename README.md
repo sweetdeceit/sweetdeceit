@@ -5,6 +5,6 @@
   
   [rentry](https://rentry.co/deceitfulsweetness) | [atabook](https://shadowsugar.atabook.org/) | [pronouns page](https://en.pronouns.page/@2C6FDB)
 
-wipwipwipwipwip my profile is so ugly
+wipwipwipwipwip
 </div>
 
